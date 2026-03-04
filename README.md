@@ -1,3 +1,3 @@
-![Alt Tag](https://cdn.discordapp.com/attachments/1223392595078680647/1478778555969306624/Untitled76_20260304173722.png?ex=69a9a35a&is=69a851da&hm=b75781a828f236c2f2a9a528bf3fb79b88a3ba07bd690d35b14639fc9df8ad26&)
+![Alt Tag](https://cdn.discordapp.com/attachments/1223392595078680647/1478807891078152214/595e3605cdbf9fb2637e9f63d79d8883.jpg?ex=69a9beac&is=69a86d2c&hm=54c96c2219d5a9ec20fd8c27c82af87c8b60fff34a1c42ad83a9c9fcb1637d5d&)
 ㅤㅤㅤɱεω ︵ ∂σℓℓㅤㅤㅤㅤㅤㅤ9tᥱᥱn
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝓜𝓲𝓰𝓾𝓮𝓵𝓼 #1 𝓵𝓸𝓿𝓮𝓻 🐶
