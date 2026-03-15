@@ -1,4 +1,4 @@
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1223392595078680647/1478807891078152214/595e3605cdbf9fb2637e9f63d79d8883.jpg?ex=69ae5bec&is=69ad0a6c&hm=c9c346c13e1f661f0fc45805cd55400882169aafa6f693808961d19f1f8cd768&)
+![Alt Tag](https://cdn.discordapp.com/attachments/1223392595078680647/1482668183532867755/tumblr_fe103f68d3e7e5214af8422a0af2d89e_e1304527_2048.jpg?ex=69b7c9d9&is=69b67859&hm=2e1c275b5288abc87aa1498a0f60da81bf1b200ca6022960f162096a5049cddb&)
 ㅤㅤㅤɱεω ︵ ∂σℓℓㅤㅤㅤㅤㅤㅤ9tᥱᥱn
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝓜𝓲𝓰𝓾𝓮𝓵𝓼 #1 𝓵𝓸𝓿𝓮𝓻 🐶
